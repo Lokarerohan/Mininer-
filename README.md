@@ -1,0 +1,2 @@
+# Mininer-
+Best for BTC
